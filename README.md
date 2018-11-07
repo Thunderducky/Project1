@@ -5,8 +5,9 @@
 * Baggio Shehadi
 * Eric Scott
 * Tony Pekearo
+* James Vera
 
-WE ALL IN THIS TOGETHER
+WE *ALL* IN THIS TOGETHER
 
 
 #### SUMMARY
